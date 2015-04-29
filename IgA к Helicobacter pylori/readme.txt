@@ -1,0 +1,1 @@
+Ìועמהטךא IgA ך Helicobacter pylori הכÿ ןנמדנאללû Reader-M
